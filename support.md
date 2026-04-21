@@ -8,7 +8,7 @@ Liminal is a wellness app that helps you wake, rest, meditate, and chant with in
 
 For questions, feature requests, bug reports, or anything else:
 
-**liminal.app@gmail.com**
+**conor_sweeney92@icloud.com**
 
 I read every message personally. Please allow a few days for a reply.
 

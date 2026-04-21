@@ -46,4 +46,4 @@ If this policy ever changes, the updated version will be posted at the same URL 
 
 ## Contact
 
-Liminal is made by Conor Sweeney. If you have questions about this policy, you can reach out at **conor_sweeney92@icloud.com**.
+Liminal is made by Conor Sweeney. If you have questions about this policy, you can reach out at **liminal.app@gmail.com**.
